@@ -1,4 +1,4 @@
-artyom shutoff ✨ (Russia)
+Artyom Shutoff ✨ (Russia)
 
 Middle Python Developer with 5 years of experience. 
 
